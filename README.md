@@ -1,2 +1,2 @@
 # Mobile-Friendly-Website
-https://sachinrajput98.github.io/Mobile-Friendly-Website/
+https://sachinkumar46.github.io/Mobile-Friendly-Website/
